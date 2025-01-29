@@ -6,4 +6,4 @@
 
 4. If you’re curious about my favourite music, here’s a link to one of my favourite songs: Watch it here: https://www.youtube.com/watch?v=nspxAG12Cpc
 
-5. An interesting fact about me is that I’ve tried making pizza from scratch at home using a variety of toppings. I even made a dessert pizza once with chocolate and fruit such as persimon, and it turned out surprisingly delicious!
+5. An interesting fact about me is that I’ve tried making pizza from scratch at home using a variety of toppings. I even made a dessert pizza once with chocolate and fruit such as persimmon, and it turned out surprisingly delicious!
